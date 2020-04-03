@@ -1,0 +1,2 @@
+# Lemburan
+Gk sesuai gaji
